@@ -1,1 +1,1 @@
-live at : https://quasartalk.onrender.com
+live at : https://quasartalk-wmdq.onrender.com
